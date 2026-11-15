@@ -29,6 +29,6 @@ Formulas and charts update when you paste new raw data.
 - Small jobs are usually done within 24 hours
 
 Hire me: [Fiverr](https://www.fiverr.com/haithamashraf)
-Templates: [eldesouky4.gumroad.com](https://eldesouky4.gumroad.com)
+Templates: [haithameldesouky.gumroad.com](https://haithameldesouky.gumroad.com)
 
 All names, emails and numbers in these files are fake (example.com).
